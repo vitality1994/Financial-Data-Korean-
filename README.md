@@ -1,1 +1,1 @@
-# Financial-Data-relatied-in-Korean-
+# Financial-Data-relatied-(in-Korean)-
